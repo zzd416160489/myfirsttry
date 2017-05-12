@@ -1,1 +1,1 @@
-我的第一次给了你
+i give my firsttime to u
